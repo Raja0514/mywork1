@@ -39,7 +39,7 @@
 
 19. call water jet filter persion and fix the filter its urgent also
 
-20.cut medium emporder and send to site very urgent 7 nos slap
+20.cut medium emporder and send to site very urgent 7 nos slap.
 
 
 
